@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MisterEdd
 - 👀 I’m interested in everything
-- 🌱 I’m currently learning new softwood cutting techniques
+- 🌱 I’m currently learning new ways to take cuttings from plants
 - 💞️ I’m looking to collaborate on training for staff across STFC
 - 📫 How to reach me ...
 
